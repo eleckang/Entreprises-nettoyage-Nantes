@@ -92,6 +92,10 @@
 **Si vous cherchez une entreprise fiable, polyvalente et réactive à Nantes, Team Nettoyage est un choix judicieux, surtout pour :**
 
 
+
 ✔️ Les **professionnels** exigeants (restaurants, cliniques, bureaux).
+
 ✔️ Les **particuliers** confrontés à des besoins spécifiques (déménagement, situations sensibles).
+
 ✔️ Les **collectivités** nécessitant des prestations techniques (désinfection, haute pression).
+
